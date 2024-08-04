@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨🏽‍🎓Student at IUT Aix-Marseille<br>🧑🏽‍💻work-study program for Absys at Airbus<br>🎧Permanent music listener<br>💻Passionate about computers<br>🙌🏽I like to touch everything!
+👨🏽‍🎓Student at IUT Aix-Marseille<br>🧑🏽‍💻work-study program for Absys at Airbus ✈<br>🎧Permanent music listener<br>💻Passionate about computers<br>🙌🏽I like to touch everything!
 
 
 ## 🌐 Socials:
