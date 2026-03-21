@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨🏽‍🎓Gratuate at IUT Aix-Marseille<br>🧑🏽‍💻developper for Absys at Airbus ✈<br>🎧Permanent music listener<br>💻Passionate about computers<br>🙌🏽I like to touch everything!
+👨🏽‍🎓Gratuate at IUT Aix-Marseille<br>🧑🏽‍💻Developper for Absys at Airbus ✈<br>🎧Permanent music listener<br>💻Passionate about computers<br>🙌🏽I like to touch everything!
 
 
 ## 🌐 Socials:
